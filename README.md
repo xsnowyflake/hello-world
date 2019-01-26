@@ -1,5 +1,5 @@
 # hello-world
 
-Hi Capstone Pees!
+Hi Capstone Peeps!
 
 We are almost at the finish line, don't give up! Fighting! 
